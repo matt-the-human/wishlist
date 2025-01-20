@@ -1,0 +1,26 @@
+# Christmas 2024 wishlist
+
+## Amazon wishlist
+
+[Amazon Wishlist](https://www.amazon.com/hz/wishlist/ls/2E477W1WAHNZJ?ref_=wl_share)
+
+## (relatively) Normal Things
+[Lan turtle](https://shop.hak5.org/products/lan-turtle)
+
+[Wifi pineapple](https://shop.hak5.org/products/wifi-pineapple)
+
+[HackRF](https://www.adafruit.com/product/3583)
+
+[PicoGlitcher](https://www.tindie.com/products/faulty-hardware/picoglitcher-v11/)
+
+[Voltage Tester](https://www.homedepot.com/p/Klein-Tools-Non-Contact-Voltage-Tester-Pen-50-1000V-AC-NCVT1PR-NCVT1PR/317460355)
+
+[Darn tough socks](https://darntough.com/collections/our-picks-for-him/products/mens-merino-wool-run-no-show-tab-ultra-lightweight-running-socks?variant=37874238324922) 
+*Eclipse, Large*
+
+## Wierd things
+*Probably don't get this stuff*
+
+*You might end up on a watchlist or something. idk*
+
+[Implantable RFID chip](https://dangerousthings.com/product/xem/)
