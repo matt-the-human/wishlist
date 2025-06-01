@@ -18,8 +18,7 @@
 [Darn tough athletic socks](https://darntough.com/collections/our-picks-for-him/products/mens-merino-wool-run-no-show-tab-ultra-lightweight-running-socks?variant=37874238324922) 
 *Eclipse, Large*
 
-[Darn tough boot socks]
-(https://darntough.com/collections/men/products/unisex-merino-wool-t4021-tactical-boot-midweight-tactical-socks?variant=37874253365434)
+[Darn tough boot socks](https://darntough.com/collections/men/products/unisex-merino-wool-t4021-tactical-boot-midweight-tactical-socks?variant=37874253365434)
 *Black, Large*
 *I could only use 2 more pairs*
 
