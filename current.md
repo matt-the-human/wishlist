@@ -1,10 +1,12 @@
-# Christmas 2024 wishlist
+# Birthday 2025 wishlist
 
 ## Amazon wishlist
 
 [Amazon Wishlist](https://www.amazon.com/hz/wishlist/ls/2E477W1WAHNZJ?ref_=wl_share)
 
-## (relatively) Normal Things
+## Other Things
+[New scales for knife](https://smkw.com/smkw-bugout-copper-handle-scales?srsltid=AfmBOorzmSDydsb1F2y0YqJcfCm1GtBBc0p38H2ST2XB4khvbjFM5QKl)
+
 [Lan turtle](https://shop.hak5.org/products/lan-turtle)
 
 [Wifi pineapple](https://shop.hak5.org/products/wifi-pineapple)
@@ -13,14 +15,12 @@
 
 [PicoGlitcher](https://www.tindie.com/products/faulty-hardware/picoglitcher-v11/)
 
-[Voltage Tester](https://www.homedepot.com/p/Klein-Tools-Non-Contact-Voltage-Tester-Pen-50-1000V-AC-NCVT1PR-NCVT1PR/317460355)
-
-[Darn tough socks](https://darntough.com/collections/our-picks-for-him/products/mens-merino-wool-run-no-show-tab-ultra-lightweight-running-socks?variant=37874238324922) 
+[Darn tough athletic socks](https://darntough.com/collections/our-picks-for-him/products/mens-merino-wool-run-no-show-tab-ultra-lightweight-running-socks?variant=37874238324922) 
 *Eclipse, Large*
 
-## Wierd things
-*Probably don't get this stuff*
+[Darn tough boot socks]
+(https://darntough.com/collections/men/products/unisex-merino-wool-t4021-tactical-boot-midweight-tactical-socks?variant=37874253365434)
+*Black, Large*
+*I could only use 2 more pairs*
 
-*You might end up on a watchlist or something. idk*
 
-[Implantable RFID chip](https://dangerousthings.com/product/xem/)
