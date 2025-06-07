@@ -5,8 +5,6 @@
 [Amazon Wishlist](https://www.amazon.com/hz/wishlist/ls/2E477W1WAHNZJ?ref_=wl_share)
 
 ## Other Things
-[New scales for knife](https://smkw.com/smkw-bugout-copper-handle-scales?srsltid=AfmBOorzmSDydsb1F2y0YqJcfCm1GtBBc0p38H2ST2XB4khvbjFM5QKl)
-
 [Lan turtle](https://shop.hak5.org/products/lan-turtle)
 
 [Wifi pineapple](https://shop.hak5.org/products/wifi-pineapple)
